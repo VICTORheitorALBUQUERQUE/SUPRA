@@ -1,2 +1,0 @@
-# SUPRA
-trabalho sobre supra
